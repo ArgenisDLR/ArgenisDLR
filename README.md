@@ -23,6 +23,7 @@
 - [5 Tips on how to become a better software engineer](https://medium.com/@argenisdelarosa/5-tips-on-how-to-become-a-better-software-engineer-37866c036ba9)
 - [A week without the internet!](https://www.argenisdelarosa.com/blog/a-week-without-the-internet-thoughts)
 - [13 Cities And 2 Countries In 30 Days](https://www.argenisdelarosa.com/blog/13-cities-and-2-countries-in-one-month)
+- [Exploring Maine and Acadia National Park](https://www.argenisdelarosa.com/blog/exploring-maine)
 
 ---
 
