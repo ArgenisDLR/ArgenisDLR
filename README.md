@@ -15,6 +15,7 @@
 <!-- YOUTUBE:START -->
 - [I went a week without the Internet](https://youtu.be/vLB_ahm1cfQ)
 - [We Traveled Across 13 Cities In 30 Days](https://youtu.be/wMAIA_DSREY)
+- [Exploring Maine and Acadia National Park During Foliage Season](https://www.youtube.com/watch?v=1gKq48Xl5Lk)
 
 ---
 
